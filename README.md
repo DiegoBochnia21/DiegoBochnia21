@@ -4,6 +4,10 @@
 
 - I'm studying at Alura
 
+- I've studied in Austrália for six months.
+
+- I'm fluent in English.
+
 
 
 ### Contacts📫
